@@ -5,4 +5,4 @@ $${\color{#A37E8B}\text{You can't catch me ♥}}$$
 $${\color{#A37E8B}\text{Dupi or Kairu : ) ♥♥ }}$$
 $${\color{#724956}\text{He . him}}$$ 
 
-![Image](https://github.com/user-attachments/assets/51661665-467e-4972-8527-034fcde60558) Transmasc . Minor !! 
+![Image](https://github.com/user-attachments/assets/51661665-467e-4972-8527-034fcde60558)   Transmasc . Minor !! ![Image](https://github.com/user-attachments/assets/6ac70017-f898-4231-93e4-7bab9bbc7071)
