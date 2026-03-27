@@ -2,5 +2,7 @@ $${\color{#A37E8B}\text{You can't catch me ♥}}$$
 
 <img width="2000" height="270" alt="Image" src="https://github.com/user-attachments/assets/87ebe695-4fb0-418e-b1bf-b92fa8f8553f" />
 
-$${\color{#A37E8B}\text{Dupi or Kairu : ) }}$$
+$${\color{#A37E8B}\text{Dupi or Kairu : ) ♥♥ }}$$
 $${\color{#724956}\text{He . him}}$$ 
+
+![Image](https://github.com/user-attachments/assets/51661665-467e-4972-8527-034fcde60558) Transmasc . Minor !! 
